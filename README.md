@@ -1,0 +1,2 @@
+# kakashi
+crazy notes
